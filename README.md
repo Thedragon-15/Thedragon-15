@@ -38,4 +38,4 @@
 	
 </p>
 
-<sub>Credits to: <br/>[IreneHerrerart](https://www.artstation.com/ireneherrera) for the wonderfull [picture](src="https://github.com/Thedragon-15/Thedragon-15/blob/8e79f0b6c85d3ac75cfd79266064174f51bab78f/LogoTipo.jpg")</sub>
+<sub>Credits to: <br/>[Diego palacios 2022] 
